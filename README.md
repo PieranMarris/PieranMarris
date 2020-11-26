@@ -1,4 +1,4 @@
-Welcome to a dark corner of CloudTrade where occasionally things happen and ideas are quashed.
+Welcome to a dark corner of CloudTrade where occasionally things happen.
 
 ---
 
